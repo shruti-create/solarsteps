@@ -13,4 +13,6 @@ College students, specifically for students in the Synthesis program, to put int
 
 ## DEMO VIDEO
 
+https://drive.google.com/file/d/1QSmzwQzkW0116GCH-eH_Rv6aH_sq91Re/view?usp=sharing 
+
 
